@@ -1,4 +1,4 @@
-
+Enhance your CyberGhost experience with best CyberGhost Extension | P2P-support + smart-DNS, the #1 extension. Includes P2P-support and smart-DNS for a safer and more private
 
 
 
